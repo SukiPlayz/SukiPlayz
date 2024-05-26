@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **suki@suki.is-a.dev**
 
-- ⚡ Fun fact **I do 10 pushups per day**
+- ⚡ Fun fact **I hate butterflies**
 
 
 <h3 align="left">Connect with me:</h3>
